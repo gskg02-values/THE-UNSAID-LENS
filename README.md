@@ -72,14 +72,9 @@ Welcome to the sanctuary of the real.
 
 
 
-
-
-
-
-
 ✉️ Feedback and reflections are welcome as we continue to fine-tune.
-
-
 
 Curator: \[Siva/gskg02@gmail.com]
 
+
+### **"A RECYCLABLE, REUSABLE, REDUCABLE and a SUSTAINABLE digital writing with humane thinking."**
